@@ -1,0 +1,2 @@
+# Community - Systems Engineering VR Project
+Through a series of different interactions, dialogues and tasks, people get to solve different problems that others may face. The completion of tasks will lead to development of each individual and of the community as a whole. For example, by invigorating an interest in home gardening, users may discover a passion for new hobbies and taking on new responsibilities which will ultimately lead to an improvement of their quality of life.
